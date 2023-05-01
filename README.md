@@ -1,2 +1,1 @@
-anone must start back end
-anyone must start jss
+everything uploded in chats
